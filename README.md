@@ -1,7 +1,5 @@
 ### What's good there!!!
 
-<h3 align="center">A passionate frontend developer from India</h3>
-
 ⚡ Fun fact: I'm bad on what I do for life :)
 
 <h3 align="left">Languages and Tools:</h3>
