@@ -1,6 +1,6 @@
 ### What's good there!!!
 
-⚡ Fun fact: I'm bad on what I do for life :)
+⚡ Fun fact: I'm not good at what I do in life. :)
 
 My website:
 https://yshikageone.github.io/
