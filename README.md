@@ -1,7 +1,7 @@
 ### What's good there!!!
 
 Jerra hehe<3
-<img align="right" alt="Coding" width="300" src="https://media.giphy.com/media/bGgsc5mWoryfgKBx1u/giphy.gif">
+<img align="right" alt="Coding" width="250" src="https://media.giphy.com/media/bGgsc5mWoryfgKBx1u/giphy.gif">
 ⚡ Fun fact: I'm not good at what I do in life. :)
 
 My website:
