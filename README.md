@@ -1,5 +1,5 @@
 ### What's good there!!!
-<img align="right" alt="Coding" width="100" src="https://media.giphy.com/media/bGgsc5mWoryfgKBx1u/giphy.gif">
+<img align="right" alt="Coding" width="150" src="https://media.giphy.com/media/bGgsc5mWoryfgKBx1u/giphy.gif">
 
 Jerra hehe<3
 ⚡ Fun fact: I'm not good at what I do in life. :)
