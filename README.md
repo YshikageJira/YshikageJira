@@ -1,10 +1,8 @@
 ### What's good there!!!
 
 Jerra hehe<3
-
-⚡ Fun fact: I'm not good at what I do in life. :)
-
 <img align="right" alt="Coding" width="200" src="https://media.giphy.com/media/bGgsc5mWoryfgKBx1u/giphy.gif">
+⚡ Fun fact: I'm not good at what I do in life. :)
 
 My website:
 https://yshikagejira.github.io/
