@@ -15,5 +15,5 @@ https://yshikageone.github.io/
   <img align="left" src="https://github-readme-stats.vercel.app/api?username=yshikageone&theme=dark&show_icons=true" />
 </a>
 <a href="https://github.com/anuraghazra/convoychat">
-  <img align="left" src="https://github-readme-stats.vercel.app/api/top-langs/?username=yshikageone&theme=dark&langs_count=6" />
+  <img align="left" src="https://github-readme-stats.vercel.app/api/top-langs?username=yshikageone&show_icons=true&locale=en&layout=compact" alt="yshikageone" />
 </a>
