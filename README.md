@@ -2,7 +2,8 @@
 ### What's good there!!!
 <img align="right" alt="Coding" width="400" src="https://media.giphy.com/media/bGgsc5mWoryfgKBx1u/giphy.gif">
 
-K'x qrvcm eiavr rnf em pexo iiwk...Z ninw yoalmn pxzv pow ucuvl
+ニガス・イン・パリス
+We all have to come into terms with it
 ⚡ Fun fact: I'm not good at what I do in life. :)
 
 My website:
