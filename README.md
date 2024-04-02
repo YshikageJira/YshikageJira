@@ -3,7 +3,7 @@
 <img align="right" alt="Coding" width="400" src="https://media.giphy.com/media/bGgsc5mWoryfgKBx1u/giphy.gif">
 
 ニガス・イン・パリス <br>
-We all have to come into terms with it <br>
+Jerra <3 <br>
 ⚡ Fun fact: I'm not good at what I do in life. :)
 
 My website:
